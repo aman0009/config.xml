@@ -1,1 +1,1 @@
-Aman is aweomse
+Aman is awesome
